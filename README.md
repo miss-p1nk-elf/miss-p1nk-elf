@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Profile Viewers](https://komarev.com/ghpvc/?username=miss-p1nk-elf&color=F4B4C4&style=plastic)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ⠀⠀![Profile Viewers](https://komarev.com/ghpvc/?username=miss-p1nk-elf&color=F4B4C4&style=plastic)
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="547" height="390" alt="Zrzut ekranu 2025-08-03 180641" src="https://github.com/user-attachments/assets/d01b1d55-6241-42d8-b55a-9cc40eb2bd10" />
